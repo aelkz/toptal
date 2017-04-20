@@ -15,5 +15,6 @@ Working as a team, we expect to deal with every kind of situation. Knowing how t
 
 As a professional, I have to expect to work with other people and treat them with respect. I need to act as a robot in terms of efficiency and quality of the product I've been put to design, but I need to know how to increase or decrease my sense of helping if someone is acting lower than expected, to keep the team working as a unique processing unit.
 
-Raphael Abreu
+#### Raphael Abreu
+
 raphael.alex@gmail.com
