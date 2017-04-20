@@ -13,4 +13,7 @@ All of us three acted as a unique prcessing unit, working like if each other was
 
 Working as a team, we expect to deal with every kind of situation. Knowing how to deal with them is something that defines the mature of the team to solve critical situations like that one I faced in the past time. If someone in the team had different toughts or choosen the wrong direction, I think we are not able to deliver the project in time.
 
-As a professional, I have to expect to work with other people and treat them with respect. I need to act as a robot in terms of efficiency and quality of the product I've been put to design, but I need to know how to increase or decrease my sense of helping if someone is acting lower than expected, to keep team working as a unique processing unit.
+As a professional, I have to expect to work with other people and treat them with respect. I need to act as a robot in terms of efficiency and quality of the product I've been put to design, but I need to know how to increase or decrease my sense of helping if someone is acting lower than expected, to keep the team working as a unique processing unit.
+
+Raphael Abreu
+raphael.alex@gmail.com
